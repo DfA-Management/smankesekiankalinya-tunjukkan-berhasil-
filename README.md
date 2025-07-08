@@ -1,1 +1,0 @@
-# smankesekiankalinya-tunjukkan-berhasil-
